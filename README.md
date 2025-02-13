@@ -1,2 +1,0 @@
-# agencia-hdgfx
-Design
